@@ -1,4 +1,4 @@
-
+Experience baddies like never before with baddies Script ultimate, the #1 Script. Includes teleport and anti-ban for unbeatable performance.
 
 
 
